@@ -70,5 +70,5 @@ I'm particularly interested in:
 
 ## Connect With Me
 
-- https://www.linkedin.com/in/benedek-kapitány-80974467/
+- https://www.linkedin.com/in/benedek-kapitany/
 - Based in St. Gallen, Switzerland
